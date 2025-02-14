@@ -1,3 +1,2 @@
-- 👋 Hi, I’m Himanshu 
-- 👀 I convert whatever into whatever that makes money 
-- 📫 Reach me on : hr731977@gmail.com
+Hi , I'm Himanshu (Building Thoughts , it can be yours too )
+pay a visit : [himanshuranjan.me](himanshuranjan.me)
