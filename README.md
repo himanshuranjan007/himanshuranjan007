@@ -3,4 +3,4 @@
 
 🌐 Pay a visit: [himanshuranjan.me](https://www.himanshuranjan.me/)  
 
-**Visitors:** ![Visitor Count](https://profile-counter.glitch.me/himanshuranjan007/count.svg)
+![Visitor Count](https://profile-counter.glitch.me/himanshuranjan007/count.svg)
